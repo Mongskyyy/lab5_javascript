@@ -1,1 +1,1 @@
-# lab5_javascript
+# SABAR DULU BOS MAU BALIK WKWKWKWK
